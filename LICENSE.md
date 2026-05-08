@@ -1,4 +1,4 @@
-
+best Scripts for steal a brainrot offers the most advanced steal a brainrot Script, with fly and auto-upgrade. Perfect for dominating any match.
 
 
 
